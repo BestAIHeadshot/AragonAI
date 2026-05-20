@@ -1,20 +1,20 @@
-# [Aragon AI](https://aragon.ai/?redirectType&?via=abd) Promo Codes 15% Off (100% Working)
+# [Aragon AI](https://aragon.ai/?redirectType&?via=git) Promo Codes 15% Off (100% Working)
 
-## Promo Code For [Aragon AI](https://aragon.ai/?redirectType&?via=abd)
+## Promo Code For [Aragon AI](https://aragon.ai/?redirectType&?via=git)
 
 ```text
 WIN
 ```
 ## Introduction
 
-[Aragon AI](https://aragon.ai/?redirectType&?via=abd) is a website that helps people create professional AI-generated headshots from normal selfies. The platform is designed for individuals, teams, and businesses that want high-quality profile photos without booking a traditional photographer.
+[Aragon AI](https://aragon.ai/?redirectType&?via=git) is a website that helps people create professional AI-generated headshots from normal selfies. The platform is designed for individuals, teams, and businesses that want high-quality profile photos without booking a traditional photographer.
 
 The process is simple:
 1. Upload a few photos
 2. Choose styles and backgrounds
 3. Let the AI generate professional headshots
 
-[Aragon AI](https://aragon.ai/?redirectType&?via=abd) focuses on speed, convenience, and affordability.
+[Aragon AI](https://aragon.ai/?redirectType&?via=git) focuses on speed, convenience, and affordability.
 
 ---
 
@@ -22,7 +22,7 @@ The process is simple:
 
 ### AI Headshot Generation
 
-[Aragon AI](https://aragon.ai/?redirectType&?via=abd) can turn ordinary selfies into studio-style professional headshots in a short time. Users can create photos for:
+[Aragon AI](https://aragon.ai/?redirectType&?via=git) can turn ordinary selfies into studio-style professional headshots in a short time. Users can create photos for:
 
 - LinkedIn profiles
 - Resumes
